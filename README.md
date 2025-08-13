@@ -8,6 +8,6 @@
 
 📫 How to reach me: You can contact me via email at [karthiban.26@gmail.com]
 
-😄 Pronouns: He/Him
+😄 Pronouns: He
 
 ⚡ Fun fact: I speak five languages and love to explore new technologies that make data management more efficient!
